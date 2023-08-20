@@ -106,7 +106,6 @@
 
 atharvashelke1234@gmail.com   
 
-+91-8623011047 
              
 codechef- https://www.codechef.com/users/monarch28
 
